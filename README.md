@@ -1,2 +1,3 @@
 # General-Information
-Read this first!
+
+General information about the School can be found in the info booklet. 
